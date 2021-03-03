@@ -1,0 +1,7 @@
+/*
+resta jijij
+
+*/
+/*
+Autor: able
+*/
